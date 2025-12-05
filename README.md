@@ -1,9 +1,9 @@
 hi there, you can call me **fec**!  
 i'm hoping to meet friends from all over the world!!!  
 
-i usually idle (afk) around the rock music section on weekdays —  
+i usually idle (afk) around the rock music during weekdays —  
 i work with dual monitors, so sometimes i'm busy and not super responsive,  
-but you're always welcome to interact with me!
+but  welcome to interact with me!
 
 ---
 
