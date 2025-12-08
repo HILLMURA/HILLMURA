@@ -1,4 +1,6 @@
-hi there, you can call me **fec**!  Nice to see you in ponytown!!
+hi there, you can call me **fec**!  
+
+Nice to see you in ponytown!!
 i'm hoping to meet friends from all over the world!!!  
 
 i usually idle (afk) around the rock music during weekdays —  
